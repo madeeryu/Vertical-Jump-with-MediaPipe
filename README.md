@@ -1,1 +1,1 @@
-Creating by - Ahmad Alfaruqi
+Create by - Ahmad Alfaruqi
